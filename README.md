@@ -1,5 +1,3 @@
 # jasperlov.com
 
-Jasper Loverude's personal website
-
-Hi Maya how is babysitting
+Welcome to Jasper Loverude's personal website!
