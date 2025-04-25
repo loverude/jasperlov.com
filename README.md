@@ -1,6 +1,8 @@
 # jasperlov.com
 
-I currently live in San Diego
+Welcome to my website!
+
+I currently live in California. 
 
 Email: jasperalov@gmail.com
 
