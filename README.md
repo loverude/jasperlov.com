@@ -2,7 +2,7 @@
 
 Welcome to my website!
 
-I currently live in California. 
+I currently live in California
 
 Email: jasperalov@gmail.com
 
