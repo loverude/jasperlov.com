@@ -1,3 +1,7 @@
 # jasperlov.com
 
-Welcome to Jasper Loverude's personal website!
+I currently live in San Diego
+
+Email: jasperalov@gmail.com
+
+
